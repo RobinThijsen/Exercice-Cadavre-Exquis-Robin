@@ -1,1 +1,1 @@
-# Voici mon cadavre exquis
+# Une histoire pas très banal
